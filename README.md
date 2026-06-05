@@ -1,6 +1,6 @@
 ## 📦 License & Usage
 
-**Personal use only** – You're welcome to use this software for yourself, at your own risk.
+**Personal use only** – you will have to purchase the original software made by me 
 
 **Commercial use** – If you're a business or want to use this software as part of a paid product or service, please contact me first: **justapen2@gmail.com**. We'll need a separate agreement.
 
